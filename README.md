@@ -1,0 +1,1 @@
+# nikukyuudaimajin.github.io
